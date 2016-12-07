@@ -43,3 +43,5 @@ Over my dead body!! Says Robin.
 John Cena comes busting through the wall and screams:
 
 "I'm batman!"
+
+"Fine. You take the batsuit, Cena. I'll take the nightwing," says Robin.
